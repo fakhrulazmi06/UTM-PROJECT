@@ -9,3 +9,6 @@ It also teach me project management,group working and critical thinking ideas.Ov
 WEBSITE : https://lnkd.in/gV6nhBQh
 
 VIDEO : https://www.youtube.com/watch?v=kCPurVjhiV0
+
+[FINAL REPORT DESIGN.pdf](https://github.com/user-attachments/files/24695054/FINAL.REPORT.DESIGN.pdf)
+
