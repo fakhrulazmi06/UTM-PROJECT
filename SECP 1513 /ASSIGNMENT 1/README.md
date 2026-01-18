@@ -18,4 +18,4 @@ The face-to-face industry talk at **UTM Digital** provided a comprehensive look 
 Attending this program was an eye-opening experience. Witnessing advanced technologies firsthand highlighted the level of competition in the global market. It has fueled my motivation to strive for excellence and prepare myself to be a top-tier professional in the future. 🔥🔥
 
 ---
-🔗 **[View Original Post on LinkedIn](https://www.linkedin.com)**
+https://www.linkedin.com/posts/fakhrul-azmi_on-29102025-utm-digital-visit-industry-activity-7416618521633345536-T-7t/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFrkky4BGlnUK_j9o2GzPMl-CBijCBvCNtk
