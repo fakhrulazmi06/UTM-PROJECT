@@ -8,4 +8,3 @@ Towards the end of the talk,Ts.Abdul Alim stressed the importance of controlling
 
 REPORT LINK (LINKEDIN):https://www.linkedin.com/in/fakhrul-azmi/recent-activity/all/
 
-[Uploading TIS AS3 REPORT.pdf…]()
